@@ -1,4 +1,4 @@
-- 👋 Hi, I’m 
+- 👋 Hi, I’m Ren PJ
 - 👀 I’m interested in gaming
 - 🌱 I’m currently learning SD
 - 💞️ I’m looking to collaborate on ...
