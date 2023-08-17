@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Ren PJ
+- 👋 Hi, I’m Renuthurgasree PJ
 - 👀 I’m interested in gaming development
 - 🌱 I’m currently learning software development
 - 💞️ I’m looking to collaborate on ...
